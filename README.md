@@ -1,1 +1,1 @@
-# practica1_fdp
+# practica1_Rojas López Arturo
